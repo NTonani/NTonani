@@ -1,1 +1,1 @@
-don't forget to love yourself :heart:
+don't forget to love :heart:
